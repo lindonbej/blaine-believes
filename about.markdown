@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-## About This Site
+## This Site
 
 Hello! 😃 My name is Blaine, and I'm a member of The Church of Jesus Christ of Latter-day Saints. I've created this site to share my testimony, beliefs and experiences as a follower of Jesus Christ and a member of His Church. I hope this site will help you on your journey to come to know God. I also hope that it will increase your understanding of the Church if you would like to know more about it.
 
@@ -16,7 +16,7 @@ As a disclaimer, I want to make it clear that the views expressed in this blog d
 
 Thanks for coming to my blog! Have a wonderful day!!!
 
-## About the Church
+## The Church
 
 First and foremost, we believe in Jesus Christ. We believe what is taught about Him in the Holy Bible: we believe that He is the Son of God, and that He came to earth to teach us how to return to God's presence, and then sacrificed Himself to redeem us from our sins. After sacrificing Himself, He rose from the dead and returned to God's presence, overcoming death and making it possible for us to live again after we die.
 
