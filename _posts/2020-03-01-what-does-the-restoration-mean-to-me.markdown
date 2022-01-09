@@ -22,11 +22,11 @@ I testify that I have felt God and His love. He loves all of us, and He will hel
 
 If you would like to learn more, please visit comeuntochrist.org.
 
-[1]: See <a href="https://www.comeuntochrist.org/beliefs/jesus-christ-church/god-speaks-through-prophets">here</a> to learn about General Conference
-[2]: If you're not familiar with the restoration, see <a href="https://www.churchofjesuschrist.org/study/manual/the-restoration?lang=eng">here</a>
-[3]: See <a href="https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng">The Book of Mormon, Ether 12:4</a>
-[4]: See <a href="https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1?lang=eng">Joseph Smith--History 1:8-10</a>
-[5]: See <a href="https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1?lang=eng">Joseph Smith--History 1:1-20</a>
-[6]: See <a href="https://www.comeuntochrist.org/beliefs/god/relationship-with-god">here</a> to learn more
-[7]: See <a href="https://www.churchofjesuschrist.org/study/manual/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng">The Family: a Proclamation to the World</a>
+[1]: See <a href="https://www.comeuntochrist.org/beliefs/jesus-christ-church/god-speaks-through-prophets">here</a> to learn about General Conference  
+[2]: If you're not familiar with the restoration, see <a href="https://www.churchofjesuschrist.org/study/manual/the-restoration?lang=eng">here</a>  
+[3]: See <a href="https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng">The Book of Mormon, Ether 12:4</a>  
+[4]: See <a href="https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1?lang=eng">Joseph Smith--History 1:8-10</a>  
+[5]: See <a href="https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1?lang=eng">Joseph Smith--History 1:1-20</a>  
+[6]: See <a href="https://www.comeuntochrist.org/beliefs/god/relationship-with-god">here</a> to learn more    
+[7]: See <a href="https://www.churchofjesuschrist.org/study/manual/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng">The Family: a Proclamation to the World</a>  
 [8]: See <a href="https://www.churchofjesuschrist.org/study/general-conference/2013/04/four-titles?lang=eng">this talk</a> by president Uchtdorf. He was addressing a body of men, so he uses the term "sons" and "brethren", but the doctrine is equally applicable to women.
