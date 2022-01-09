@@ -3,7 +3,7 @@ layout: page
 title: About the Church
 permalink: /the-church/
 ---
-_See here for the church's official website: https://www.churchofjesuschrist.org/comeuntochrist_
+_See [here](https://www.churchofjesuschrist.org/comeuntochrist) for the church's official website_
 
 First and foremost, we believe in Jesus Christ. We believe what is taught about Him in the Holy Bible: we believe that He is the Son of God, and that He came to earth to teach us how to return to God’s presence, and then sacrificed Himself to redeem us from our sins. After sacrificing Himself, He rose from the dead and returned to God’s presence, overcoming death and making it possible for us to live again after we die.
 
