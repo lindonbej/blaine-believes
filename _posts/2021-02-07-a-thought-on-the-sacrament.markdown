@@ -15,5 +15,5 @@ So today was a good reminder of how important it is to take time each and every 
 
 That's my thought for today! I wish you a most joyful Sunday, and leave this thought with you in the name of Jesus Christ. Amen!
 
-[1]: Once a month, members of the church fast as part of our worship. For more information, see https://abn.churchofjesuschrist.org/study/manual/gospel-principles/chapter-25-fasting?lang=eng
-[2]: See https://www.comeuntochrist.org/belong/church-community/the-sacrament
+[^1]: Once a month, members of the church fast as part of our worship. For more information, see https://abn.churchofjesuschrist.org/study/manual/gospel-principles/chapter-25-fasting?lang=eng  
+[^2]: See https://www.comeuntochrist.org/belong/church-community/the-sacrament
