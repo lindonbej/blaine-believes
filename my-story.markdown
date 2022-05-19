@@ -4,7 +4,7 @@ title: My Story
 permalink: /my-story/
 ---
 
-# Beginnings of Faith
+# Growing Up
 
 I was born into a family that has a long heritage of faith in Jesus Christ and membership in the Church of Jesus Christ of Latter-day Saints. Several of my ancestors joined the Church in its early days and some knew [Joseph Smith](https://www.churchofjesuschrist.org/comeuntochrist/believe/restoration/the-church-of-jesus-christ-is-restored) personally.
 
@@ -22,7 +22,7 @@ The lesson that we had prepared to share with this family was on the [Restoratio
 
 That experience was the beginning of my personal testimony. Numerous experiences, both large and small, have contributed to my belief in God and Jesus Christ's Restored Church since then, but I look back to that experience as my first major experience with God. That experience taught me that to experience God, we must act in faith despite our uncertainty.
 
-# Teenage Years - Science and Faith
+# Teenage Years
 
 Since I was young, I have had a great interest in science and math. My favorite show as a kid was Nova Science Now, and one of the best Christmas gifts I ever received was The Idiot's Guide to String Theory. 
 
@@ -64,6 +64,8 @@ Eventually these doubts led to a total crisis of faith. For two days my mind was
 
 But then I had an important realization: I was mentally spiriling out of control, I was overreacting. Sure, it was possible everything I believed was a lie manufactured by Satan. I knew now that this was a real possibility. But it was still just a possibility. It was also a possibility that everything I believed was true. Scientifically, I had no more evidence that my spiritual experiences had come from Satan than I had that they came from God. And it was not rational to abandon everything I had believed in and lived for just because I _might_ be wrong. Hadn't I already been living my life in faith, even though I knew what I belived _might_ be wrong?
 
-And so I decided it was time to excersize faith again. I chose to trust the many experiences I had had before and during my mission that strengthened my faith, and I continued forward to finish my mission.
+And so I decided it was time to excersize faith again. I chose to trust the many experiences I had had before and during my mission that strengthened my faith, and I continued forward to finish my mission. But the doubts still lived in the back of my mind, and I knew in my heart that there would come a day when I would need to face them again head on.
 
-TO BE CONTINUED. . .
+# College Years
+
+Three days after returning home from Hong Kong, I began my first semester at Brigham Young University (BYU). My faith was tender and fragile after having gone through a crisis only a few months before. But on my first day of class I found a spiritual lifeline in the form of a religion class. Because BYU is owned and run by the Church, classes on religion are among the required courses. [Talk about the lesson/reading on being a seeker, and how assumptions and preconceived notions can hold back both skeptics and believers from the truth. I realized that the challenges to my faith on my mission had been necessary to erase some of the assumptions that were holding me back from seeking greater truth]
